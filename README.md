@@ -2,6 +2,6 @@
 
 - Strogonoff de frango
 
-- torta
+- Torta alemã
 
   
