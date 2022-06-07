@@ -1,4 +1,4 @@
-![](C:\Users\Daniel\Pictures\Strogonoff-de-frango.jpg)
+[](https://tudodereceitas.com.br/wp-content/uploads/2022/01/Strogonoff-de-frango.jpg)
 
 
 

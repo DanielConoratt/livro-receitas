@@ -1,6 +1,4 @@
-![](C:\Users\Daniel\Pictures\alema2.jpg)
-
-
+[](https://ciadereceitas.com.br/wp-content/uploads/2022/01/torta-alema-com-biscoito-de-maizena.jpg)
 
 ## Ingredientes
 
